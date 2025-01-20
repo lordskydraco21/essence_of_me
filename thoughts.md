@@ -1,1 +1,1 @@
-god im not able to sleep.
+god im not able to sleep. i want to work as much as possible and never die.
