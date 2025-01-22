@@ -36,7 +36,8 @@ content creation
 business
 }
 
-
+exposure to wide range of fields is more important than specialization if you want to general problem solver.
+ 
 
 
 
